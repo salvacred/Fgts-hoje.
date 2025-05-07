@@ -1,1 +1,0 @@
-# Fgts-hoje.
